@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sam. Or Bones.
+- 👋 Hi, I’m Bones. Finding my Place really.
 still working on this. 
 
 <!---
